@@ -1,0 +1,1 @@
+# Job-role-equality-index-analysis-at-daikibo-factory-meiyo-
